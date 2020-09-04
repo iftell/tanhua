@@ -14,9 +14,9 @@
 
 ##### :heart: :point_right: 【地址二】 ：http://tanhua5.xyz
 
-##### :heart: :point_right: 【邮箱联系方式】 ：laosijifachele@gmail.com
+##### :heart: :point_right: 【邮箱联系方式】 ：91tanhua@gmail.com
 
 #### :sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
 
 
-:e-mail: __邮箱联系方式: laosijifachele@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
+:e-mail: __邮箱联系方式: 91tanhua@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
