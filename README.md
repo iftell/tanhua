@@ -2,11 +2,11 @@
 
 ##### :sunglasses::sunglasses:最新发布地址:sunglasses::sunglasses:
 
-##### :heart: :point_right: 【地址一】 ：http://tanhua3.xyz
+##### :heart: :point_right: 【地址一】 ：http://tanhua1.xyz
 
 ##### :heart: :point_right: 【地址二】 ：http://tanhua2.xyz
 
-##### :heart: :point_right: 【地址三】 ：http://tanhua1.xyz
+##### :heart: :point_right: 【地址三】 ：http://tanhua3.xyz
 
 ##### :heart: :point_right: 【地址四】 ：http://tanhua4.xyz
 
