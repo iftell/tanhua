@@ -12,9 +12,15 @@
 
 ##### :heart: :point_right: 【地址五】 ：http://tanhua1.xyz
 
+##### :heart: :point_right: 【地址六】 ：http://xunhua.xyz
+
 ##### :heart: :point_right: 【SWAG专区】 ：http://51swag.com
 
-##### :heart: :point_right: 【地址六】 ：http://xunhua.xyz
+##### :heart: :point_right: 【日本JAV趣】 ：http://javqu.com
+
+##### :heart: :point_right: 【91撸管国产】 ：http://91luguan.com
+
+##### :heart: :point_right: 【18迷妹直播】 ：http://18mimei.com
 
 ##### :heart: :point_right: 【官方论坛】 ：http://tanhuaba.xyz
 
