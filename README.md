@@ -16,7 +16,11 @@
 
 ---------------------------------------------
 
-##### :heart: :point_right: 【SWAG专区】 ：http://51swag.com
+##### :heart: :point_right: 【SWAGTV-地址一】 ：http://51SWAG.xyz
+
+##### :heart: :point_right: 【SWAGTV-地址二】 ：http://52SWAG.xyz
+
+---------------------------------------------
 
 ##### :heart: :point_right: 【日本JAV趣】 ：http://javqu.com
 
