@@ -8,8 +8,6 @@
 
 ##### :heart: :point_right: 【精彩直播APP-立即下载】 ：http://app.91ads.xyz
 
-##### :heart: :point_right: 【啪啪直播APP-立即下载】 ：http://app2.91ads.xyz
-
 ---------------------------------------------
 
 ##### :heart: :point_right: 【探花TV-地址一】 ：http://xunhua.xyz
