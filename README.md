@@ -4,11 +4,11 @@
 
 ##### :heart: :point_right: 【官方论坛-精品探花一部都不能少】 ：http://tanhua666.com
 
-##### :heart: :point_right: 【精品SWAG系列-官网同步】 ：http://c2bb.cc
-
 ##### :heart: :point_right: 【精品探花视频-在线观看】 ：http://ganta.cc
 
 ##### :heart: :point_right: 【精彩直播APP-立即下载】 ：http://app.91ads.xyz
+
+##### :heart: :point_right: 【精品SWAG系列-官网同步】 ：http://c2bb.cc
 
 ---------------------------------------------
 
