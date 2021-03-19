@@ -22,6 +22,13 @@
 
 ---------------------------------------------
 
+##### :heart: :point_right: 【日本JAV系列】 ：http://javyue.com
+
+##### :heart: :point_right: 【国产精品系列】 ：http://ganmeinv.com
+
+##### :heart: :point_right: 【各种门系列】 ：http://zaixianmen.com
+
+---------------------------------------------
 ##### :heart: :point_right: 【探花TV-地址一】 ：http://tanhua1.xyz
 
 ##### :heart: :point_right: 【探花TV-地址二】 ：http://tanhua2.xyz
@@ -30,13 +37,6 @@
 
 ---------------------------------------------
 
-##### :heart: :point_right: 【日本JAV系列】 ：http://javyue.com
-
-##### :heart: :point_right: 【国产精品系列】 ：http://ganmeinv.com
-
-##### :heart: :point_right: 【各种门系列】 ：http://zaixianmen.com
-
----------------------------------------------
 
 ##### :heart: :point_right: 【邮箱联系方式】 ：91tanhua@gmail.com
 
