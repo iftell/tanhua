@@ -12,23 +12,18 @@
 
 ---------------------------------------------
 
-##### :heart: :point_right: 【麻豆精品系列】 ：http://madoujav.com
+##### :heart: :point_right: 【麻豆精品系列】 ：http://madou-8.xyz
 
-##### :heart: :point_right: 【福利姬精品系列】 ：http://aifuliji.com
+##### :heart: :point_right: 【91大神精品系列】 ：http://91dsh.xyz
 
-##### :heart: :point_right: 【精品探花系列】 ：http://ganta.cc
+##### :heart: :point_right: 【门事件系列】 ：http://menshijian.xyz
 
-##### :heart: :point_right: 【SWAG精品系列】 ：http://c2bb.cc
+##### :heart: :point_right: 【极品探花系列】 ：http://tanhua8.top
 
----------------------------------------------
-
-##### :heart: :point_right: 【日本JAV系列】 ：http://javyue.com
-
-##### :heart: :point_right: 【国产精品系列】 ：http://ganmeinv.com
-
-##### :heart: :point_right: 【各种门系列】 ：http://zaixianmen.com
+##### :heart: :point_right: 【SWAG精品系列】 ：http://91swag.xyz
 
 ---------------------------------------------
+
 ##### :heart: :point_right: 【探花TV-地址一】 ：http://tanhua1.xyz
 
 ##### :heart: :point_right: 【探花TV-地址二】 ：http://tanhua2.xyz
