@@ -18,9 +18,9 @@
 
 ##### :heart: :point_right: 【门事件系列】 ：http://menshijian.xyz
 
-##### :heart: :point_right: 【极品探花系列】 ：http://tanhua8.top
+##### :heart: :point_right: 【极品探花系列】 ：http://ganta.cc
 
-##### :heart: :point_right: 【SWAG精品系列】 ：http://91swag.xyz
+##### :heart: :point_right: 【SWAG精品系列】 ：http://c2bb.cc
 
 ---------------------------------------------
 
