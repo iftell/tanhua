@@ -6,6 +6,8 @@
 
 ##### :heart: :point_right: 【精品探花视频-在线观看】 ：http://ganta.cc
 
+##### :heart: :point_right: 【全国修车资源】 ：http://xiuche.huijiaav.com
+
 ##### :heart: :point_right: 【精彩直播APP-立即下载】 ：http://app.huijiaav.com
 
 ##### :heart: :point_right: 【精品SWAG系列-官网同步】 ：http://c2bb.cc
