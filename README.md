@@ -14,9 +14,9 @@
 
 ##### :heart: :point_right: 【麻豆精品系列】 ：http://madou-8.xyz
 
-##### :heart: :point_right: 【91大神精品系列】 ：http://91dsh.xyz
+##### :heart: :point_right: 【91大神精品系列】 ：http://91dasheng.huijiaav.com
 
-##### :heart: :point_right: 【门事件系列】 ：http://menshijian.xyz
+##### :heart: :point_right: 【门事件系列】 ：http://menxilie.huijiaav.com
 
 ##### :heart: :point_right: 【极品探花系列】 ：http://ganta.cc
 
