@@ -12,7 +12,7 @@
 
 ---------------------------------------------
 
-##### :heart: :point_right: 【麻豆精品系列】 ：http://madou-8.xyz
+##### :heart: :point_right: 【麻豆精品系列】 ：http://madoutv.huijiaav.com
 
 ##### :heart: :point_right: 【91大神精品系列】 ：http://91dasheng.huijiaav.com
 
