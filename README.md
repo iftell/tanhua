@@ -8,6 +8,8 @@
 
 ##### :heart: :point_right: 【精彩直播APP-立即下载】 ：http://app.huijiaav.com
 
+##### :heart: :point_right: 【精品视频APP-立即下载】 ：http://app2.huijiaav.com
+
 ##### :heart: :point_right: 【精品SWAG系列-官网同步】 ：http://c2bb.cc
 
 ---------------------------------------------
