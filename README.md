@@ -26,11 +26,11 @@
 
 ---------------------------------------------
 
-##### :heart: :point_right: 【在线TV免费观看-地址一】 ：http://tanhua7.xyz
+##### :heart: :point_right: 【在线TV免费观看-地址一】 ：http://jingpintv.xyz
 
-##### :heart: :point_right: 【在线TV免费观看-地址二】 ：http://tanhua8.xyz
+##### :heart: :point_right: 【在线TV免费观看-地址二】 ：http://jingpintv1.xyz
 
-##### :heart: :point_right: 【在线TV免费观看-地址三】 ：http://tanhua9.xyz
+##### :heart: :point_right: 【在线TV免费观看-地址三】 ：http://jingpintv2.xyz
 
 ---------------------------------------------
 
